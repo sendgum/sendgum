@@ -1,4 +1,4 @@
-### 关于SENDGUM
+### 关于 森钢SENDGUM
 
 **您好 / Hello👋🏼**
 
@@ -14,4 +14,4 @@ _"这里有一些关于我想传递的讯息，宇宙之浩瀚我无法想象，
 
 ### 联系方式 / Links
 
-[STEAM](https://steamcommunity.com/profiles/76561199026503491/) - [X](https://x.com/sendgum) - [BLUESKY](https://bsky.app/profile/sendgum.bsky.social)
+[STEAM](https://steamcommunity.com/profiles/76561199026503491/) - [X](https://x.com/sendgum) - [BLUESKY](https://bsky.app/profile/sendgum.bsky.social) - [宇宙电波相册](https://radiouniverse.cc/browse/yuan)
